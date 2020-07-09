@@ -1,2 +1,2 @@
 # maryam
-PhD Student
+PhD Candidate 
