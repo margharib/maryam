@@ -1,2 +1,2 @@
 # maryam
-PhD Candidate 
+PhD of System Science and Industrial Engineering
