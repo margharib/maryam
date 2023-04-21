@@ -1,2 +1,2 @@
 # Maryam
-PhD of System Science and Industrial Engineering
+System Science and Industrial Engineering - PhD
